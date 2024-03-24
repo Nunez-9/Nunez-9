@@ -5,9 +5,6 @@
 - 📫 How to reach me is on Youtube,my name is 'King_GG_Pro.11(though I have not uploaded anything on youtube)
 - 😄 Pronouns:He/him
 - ⚡ Fun fact:I am the fastest in my class,and the second
-  fastest in my year
+  fastest in my year,also I am a Liverpool supporter!
 
-<!---
-Nunez-9/Nunez-9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+  Enjoy!

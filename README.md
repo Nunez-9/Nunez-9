@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about 'The Mayans'
 - 💞️ I’m looking to collaborate on football
 - 📫 How to reach me is on Youtube,my name is 'King_GG_Pro.11(though I have not uploaded anything on youtube)
-- 😄 Pronouns:Blah Blah Blah
+- 😄 Pronouns:He/him
 - ⚡ Fun fact:I am the fastest in my class,and the second
   fastest in my year
 
